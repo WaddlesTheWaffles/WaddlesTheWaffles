@@ -1,4 +1,4 @@
-## I like pigs and devloping a game
+## I like pigs and Coding
 
 im only half lying
 
