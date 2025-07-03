@@ -1,6 +1,5 @@
 ## I like pigs and Coding
 
-im only half lying
 
 
 <!--
